@@ -5,7 +5,7 @@
 
 
 ## Receita 1-Strogonoff de frango
-## Receita 2-Churraco a Grega
+## Receita 2-Churraco a americano
 
 
 
